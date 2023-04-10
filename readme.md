@@ -8,7 +8,9 @@
     but Symbols AND LOGIC instead 
     so everyone can understand 
     without translation BUT 
-    THERE is much MORE to it
+    THERE is much MORE to it 
+    THIS PURGE mind control: 
+    by REVERSE the TRUE meaning 
     ---
     STATUS developement 
     I M need harmonize .0 AND T
