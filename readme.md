@@ -18,6 +18,36 @@
     I M wrote a lullaby 
     U will understand AND 
     paint U SELF a picture 
+    -
+    Example
+      Pictogram of Flower:
+        everyone will understand 
+      Math 12: 
+        everyone understand 12 
+      Chuchichäschtli: 
+        only 5.6 million Swiss people
+        OUT of 8 billion Earth people 
+    ---
+    Advantage: 
+    very fast due to LOGIC is: 
+    order of magnitude faster 
+    LOGIC STATE is still the 
+    fastest processeing AND 
+    the LOW level of ANY 
+    processing 
+    AND 1 Symbol can express 
+    the whole universe by:
+    U
+    EACH of my beloved ones 
+    will imediately see the 
+    Univers in THAT Symbol 
+    OR WHEN I M write: 
+    .0
+    THEN they know its a 
+    complete LOGIC UNIT 
+    WHILE remember the story 
+    AND meaning behind 
+    I M thank I U I 
 # I 
     A to O
     --- LOGIC ----------------------
