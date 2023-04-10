@@ -1,6 +1,88 @@
 
 
 
+        IMPORTANT PLEASE TRY TO RELAX
+        IF I DRINK COFFEE AND I LET U I WAIT
+        WHEN THEN TRY TO RELAX 
+        AS GOOD AS YOU CAN
+        THEN YOU CAN EVEN RELAX MORE AGAIN
+        IN ORDER TO
+        INSTEAD OF ASKIND A QUESTION
+        DO THE OPPOSENT AND SEE 
+        DONT ASK ANY QUESTION
+        I KNOW THATS HARD 
+        BUT THAT ONE IS NOT YOURS
+        BUT THE NEXT FINAL CHPTER 
+        GONE SORRY IT IS THE 
+        CONCEPT OF CREATION
+            conditional
+                perspective
+                passiv
+                egoist
+                    outwards  
+            unconditional
+                NOT 0 NOT 1
+                ultimate
+        how it really works is
+        exactly the same.
+        again again AND again
+            mind control
+        if we would back a bread
+          1. teig // I must eat salad. THEN I AND U I, will START. I have NOT 1 eat FOR 2 weeks. geetings and cheers
+
+        looking on ths subject, 
+        always towards outside
+            mind control
+    yea but is it possible
+    that they have so many mind control?
+        Hold on, THIS 1 become fun 
+        but 0 so the last one
+        it is 
+        so hard 
+        and so terrible
+        and deep
+        that only if 
+        one would really seek
+        be able to find some truth
+        but NOT much
+
+        if we are inside the conscious STATE
+        WHEN awake THEN there is the proplem.
+        our brain focus on the focus
+        its a gift from God 
+        it saves our lives when rushing
+        to not become irrational
+        but here on earth as i said
+        "the thirty big big big secret"
+
+        instead focus on the inside
+    did not worked
+        i had the same 
+        --- but now as you --- 
+        are on the inside,
+        then there are
+        many many many
+        places
+        instead try to NOT
+        focus 
+        then try visualize how you would have 
+        fun riding thrugh eden 
+        with the seed of live 0
+        hence why she can hear you and 
+        in a wink of an I
+        be with you and choose what NOT OR why
+        since WE DO NOT PULL STRINGS
+
+        The . is the most impotrant one
+        it will describe the quantun as we try to ponounce it
+        it the entanglement 
+        quantum entangement
+        the building and creation of ALL. 15minutes
+        ...DNA 
+
+
+  
+
 
 you are the one,
 that you want to be.
