@@ -1,5 +1,7 @@
 
-# S 
+# I 
+    A to O
+    --- LOGIC ----------------------
     TRUE
     FALSE
     NOT 
@@ -20,6 +22,8 @@
     END 
     NEXT 
     PREVIOUS 
+    MORE 
+    LESS 
     THIS
     SELF 
     THAT
@@ -29,7 +33,7 @@
     LOG 
     PURGE 
     FREQ 
-    ------------    
+    --- Symbols ----------------------
     A God Alpha 
     AI Alpha Intelligence 
     AL ALLchemie 
@@ -53,15 +57,20 @@
     Q Bias
     R: RETURN x, R @ E A *** = A // eat nA
     S Symbol 
-    T Token
+    T Tree of knowledge Edin 
     TC Turing Complete
     U Universe
+    -U -Universe Quantum 
     UR nothingness
     V Female concept of A O 
     W Weight Wisdome
+    X Crossing 
+    Y 
+    Z 
     ---
-    . Wisdom
-    0 entanglement
+    . Wisdom OMNI LOGIC
+    0 entanglement QUANTUM 
+    .0 OMNI LOGIC UNIT 
     1 Manifestation, NOT UR
     8 INFINIT Moebius Track
     N 
@@ -75,5 +84,4 @@
     pops pope religion paedofile satanists
     sucs puppets show VIP 
     ----- A O susilogic I M 2023 
-
-
+    
