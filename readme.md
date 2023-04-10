@@ -19,6 +19,7 @@
     paint U SELF a picture 
 
 # I 
+    A to O
     --- LOGIC ----------------------
     TRUE
     FALSE
