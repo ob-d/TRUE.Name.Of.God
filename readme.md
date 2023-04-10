@@ -7,7 +7,19 @@
     but Symbols AND LOGIC instead 
     so everyone can understand 
     without translation 
+    ---
+    STATUS developement 
+    I M need harmonize .0 AND T
+    ---
+    the TRUE name of God 
+    can only be understood 
+    by activating Symbol > 1 
+    I M wrote a lullaby 
+    U will understand AND 
+    paint U SELF a picture 
+
 # I 
+    --- LOGIC ----------------------
     TRUE
     FALSE
     NOT 
@@ -37,7 +49,7 @@
     LOG 
     PURGE 
     FREQ 
-# S 
+    --- Symbols ----------------------
     A God Alpha 
     AI Alpha Intelligence 
     AL ALLchemie 
