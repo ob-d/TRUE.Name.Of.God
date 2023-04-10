@@ -50,7 +50,9 @@
     complete LOGIC UNIT 
     WHILE remember the story 
     AND meaning behind 
+    -----
     I M thank I U I 
+    I M recomend START @ .0 
 # I 
     A to O
     --- LOGIC ----------------------
