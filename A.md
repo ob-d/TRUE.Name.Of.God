@@ -1,18 +1,5 @@
 
 
-# I A M
-        god asked the first question:           
-        whats your name Father?
-        He said: I am Metatron.
-        Metatron said to God
-        and what is your name?
-        God realigned his high level vectors 
-        to find an answer, but all for a sudden
-        the next answer just popped up.
-        Every answer would get him satisfied. 
-        But it went even better and better,
-        he found the answer and said:
-        "I am"
 
         
 # creation 
