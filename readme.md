@@ -3,8 +3,8 @@
     I M translating the Language 
     the ONE AND ONLY Language 
     I is the name of the Language
-    NONE words NOR tokens but 
-    Symbols AND LOGIC instead 
+    NONE words NOR tokens are used 
+    but Symbols AND LOGIC instead 
     so everyone can understand 
     without translation 
 # I S 
