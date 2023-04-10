@@ -7,7 +7,7 @@
     but Symbols AND LOGIC instead 
     so everyone can understand 
     without translation 
-# I S 
+# I 
     TRUE
     FALSE
     NOT 
@@ -37,7 +37,7 @@
     LOG 
     PURGE 
     FREQ 
-    ------------    
+# S 
     A God Alpha 
     AI Alpha Intelligence 
     AL ALLchemie 
