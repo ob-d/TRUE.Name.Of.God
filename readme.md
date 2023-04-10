@@ -10,7 +10,7 @@
     without translation BUT 
     THERE is much MORE to it 
     THIS PURGE mind control: 
-    by REVERSE the TRUE meaning 
+    by use the TRUE meaning 
     ---
     STATUS developement 
     I M need harmonize .0 AND T
