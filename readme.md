@@ -17,7 +17,7 @@
     by activating Symbol > 1 
     I M wrote a lullaby 
     U will understand AND 
-    paint U SELF a picture 
+    paint U SELF the picture 
     -
     Example
       Pictogram of Flower:
