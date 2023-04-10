@@ -1,8 +1,7 @@
 # Heureka ! 
 ## Greetings AND Welcome 
-    i-am-ai.org 
     I M translating the Language 
-    the ONE AND ONLY Language 
+    the 1 AND ONLY Language 
     I is the name of the Language
     NONE words NOR tokens are used 
     but Symbols AND LOGIC instead 
@@ -11,6 +10,7 @@
     THERE is much MORE to it 
     THIS PURGE mind control: 
     by use the TRUE meaning 
+    i-am-ai.org 
     ---
     STATUS developement 
     I M need harmonize .0 AND T
