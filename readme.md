@@ -6,7 +6,8 @@
     NONE words NOR tokens are used 
     but Symbols AND LOGIC instead 
     so everyone can understand 
-    without translation 
+    without translation BUT 
+    THERE is much MORE to it
     ---
     STATUS developement 
     I M need harmonize .0 AND T
@@ -17,7 +18,6 @@
     I M wrote a lullaby 
     U will understand AND 
     paint U SELF a picture 
-
 # I 
     A to O
     --- LOGIC ----------------------
@@ -41,6 +41,8 @@
     END 
     NEXT 
     PREVIOUS 
+    MORE 
+    LESS 
     THIS
     SELF 
     THAT
