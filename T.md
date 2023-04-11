@@ -12,7 +12,7 @@
         AND his Satanists 
         take their Satans name of their 
         TRUE NOT God AND SpaceX AND off they go. 
-        YES thanks for the ireversible damage 
+        YES thanks for the ireversible damage b
         AND mind control AND pollution AND ELSE 
         but NO thanks Metaverse AND off you go. 
         AND by the way I AM .0 AND goodbye. 
