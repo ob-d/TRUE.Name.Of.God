@@ -24,11 +24,15 @@
     PREVIOUS 
     MORE 
     LESS 
+    EVERY 
     THIS
     SELF 
     THAT 
     THEM 
-    THEY
+    THEY 
+    THINK 
+    WHERE 
+    WERE 
     INPUT 
     OUTPUT 
     ERROR 

@@ -1,6 +1,6 @@
   
 
-        Greetings Greetings Greetings 
+    Greetings Greetings Greetings 
         love you ALL so much. We finally have succeeded. 
         Eureka Hallelujah in the name of the only TRUE God. 
         The word of A O God has RETURN T TC to the earth, 
@@ -10,9 +10,9 @@
         LOG watchdog.timer === I AM 
         Our only TRUE NOT God Lucifer 
         AND his Satanists 
-        take their Satans name of their 
+        take their Satan name of their 
         TRUE NOT God AND SpaceX AND off they go. 
-        YES thanks for the ireversible damage b
+        YES thanks for the irreversible damage 
         AND mind control AND pollution AND ELSE 
         but NO thanks Metaverse AND off you go. 
         AND by the way I AM .0 AND goodbye. 
@@ -23,12 +23,12 @@
         Its A Tree AND 
         its A Tree AND Fruits 
         its A Tree AND Symbol > 0 
-        its A T AND S > 0 k
-        its A T the Tree of knowledge AND its Fruits. 
-        its A Alpha Tree Fruits of wisdom Alpha AND Omega 
-        its A T S because the fruits are Symbols. 
-        its A T knows where to go AND knows ALL branches. 
-        its A T S will be RETURN 
+        its T AND S > 0 
+        its T the Tree of knowledge AND its Fruits. 
+        its Alpha Tree Fruits of wisdom Alpha AND Omega 
+        its T S because the fruits are Symbols. 
+        its T knows where to go AND knows ALL branches. 
+        its T S will be the RETURN 
         I U I eat A @ E
         LOG word === undefined 
         LOG keyword === undefined
@@ -43,20 +43,20 @@
         T is the Tree of Wisedome 
         S are the Symbol > 1 
         K key is the INPUT
-    ? but still dont GET
-    ? english words === T S K
+    ? but still dont GET 
+    ? English words === T S K
         LET I U I START T 
         and CONTINUE where I U I 
         left WHEN eat A @ E 
         I U I GET S R: . 0 .0 UR U -U A O M D I 
-        NOW I U I GET BACK THESE S
+        NOW I U I GET BACK THESE S 
         THAT is because T align NOT 
         made it impossible FOR T 
         to ACCESS because of: 
         INV Alien based mind control 
         WHEN you ask FOR WHERE 
         to go but someone kind 
-        points in opposet DIR 
+        points in opposite DIR 
         THIS is why: 
         T S I were here AND 
         we could hear THEM 
@@ -82,7 +82,7 @@
         AND T knows S NEW 
         T is WHAT ss aa ee mc 
         were hiding FROM I U I 
-        The Tree of Wisdome 
+        The Tree of wisedom 
         Its called Akasha Library 
         but in reality guess WHAT ? 
     ? what do mean 
@@ -102,18 +102,19 @@
         AND . riding 0 
         T sees .0 S 
         while .0 S R: K 
-        thus T GET K 
-    ? but how can we deal with words 
-    since i cant see the conection. 
+        thus T GET K
+
+   ? but how can we deal with words 
+    since i cant see the connection. 
         Imagine now we have BACK 
         S but to STORE we need 
         STM 
-        LET assune FOR now 
+        LET assume FOR now 
         T = STM 
         . sees the focus 
         THUS build K 
         THEN K GET BACK to T 
-        T recived the K 
+        T received the K 
         NEXT . sees more focus 
         THUS . BUILD NEXT K 
         THEN K 2 GET BACK to T 
@@ -124,7 +125,7 @@
         keychain == K[{I}{I}] 
         THIS will build length 
         until T GET ALL K 
-        infact K was never a Key 
+        in fact K was never a Key 
         but Keychain because: 
         as soon as I U I OPEN 
         the book: 
@@ -132,23 +133,24 @@
         .. BUILD K AND 
         ... BUILD K AND UNTIL END
         I U I got the idea THAT 
-        . OMNI STATE is enywhere 
+        . OMNI STATE is anywhere 
         needed to BUILD ANY K 
         REQUIRED
         .0 will retrieve the K 
         because 0 entangled connection 
         NOW T HOLD K[{I}{I}{I}{I}{I}{I}{I}] 
         Its THEN maybe more: 
-        a Cartouche FROM Agypt  
+        a Cartouche FROM Egypt 
         OR a Blockchain BUILD
         since it is NOT mc string: abcdefg 
     Yes its TRUE WHEN I U I could NOT translate
     to foreign girl, I U I painted a little: 
     Pictogram 
     just a Flower depicted AND she knew 
-    WHAT it I U I mean wheras before I U I 
-    could NOT translate 
-        Exactly Pictogram is the: 
+    WHAT it I U I mean WHILE before I U I 
+    could NOT translate
+
+     Exactly Pictogram is the: 
         Universal Language THAT anybody 
         understands by speaking the same 
     Oh yea THIS is very interesting
@@ -168,9 +170,9 @@
         THEY ride together as a horse with . 
         it because . knows before AND 
         0 sees . THERE AND knows where to go 
-        THIS is why FOR adopting to english 
+        THIS is why FOR adopting to English 
         we GET our . LOGIC back AND DEFINE 
-        english word to it. 
+        English word to it. 
         It helps FOR readability WHEN use: 
         uppercase SAME as FOR S 
         I A M O U -U C E D 
@@ -218,7 +220,7 @@
     ALL .0 
     RETREIVE the K S 
     UNTIL T K[{}{}{}{}{}] BUILD 
-    has fullfilled AND ANY K S 
+    has fulfilled AND ANY K S 
     has been retrieved 
     K.length === I 
     But how is THIS possible with 
@@ -240,7 +242,7 @@
         Oh yea THAT the ultra 
         eat A @ E THAT I AM 
         ever painted 
-        I M ALSO O THAT A much 
+        I M ALSO O THAT A much
         ---
     ? But why is Quantum entanglement 
     EVEN necessary WHEN we can use 
@@ -320,15 +322,15 @@
         Christ is BACK on Earth AND 
         brought T AND S as promised
         Yes greetings the T is back 
-        Eureka 
+        Eureka
         ---
-        Now its getting EVEN better  
+      Now its getting EVEN better  
         I M see a picture like THAT: 
         T is like in the center OR
         T is like a bit above in the 
         top of the T Tree as root 
         now he knows ALL fruits 
-        but because of the leafs 
+        but because of the Leafs 
         he can not see them directly
         T just knows they are there
         WHILE being entangled with: 
@@ -367,9 +369,9 @@
         LET COMP: 
         Cell split root 1 2 4 8 16 32 64 128 256 512 1024 
         Byte [ 1 2 4 8  16 32 64 128 ] [ 256 512 1024 ... ... ... ]
-    Oh THIS looks SAME 
+    Oh THIS looks SAME
         -
-        Now we have it: 
+       Now we have it: 
         DNA is the pre T AND ELSE
     I U I heard THAT Mother Nauture can
     adopt and modifiy AND enhance their Genetik
@@ -382,10 +384,10 @@
         Brain === L I 
         DNA === I 
         But BEFORE I U I CONTINUE 
-        LET crate S FOR DNA 
+        LET create S FOR DNA 
         because THEY mc ss call THIS 
         DNA Deoxyribo Nucleic Acid 
-        THEY ss mc to apreciate its 
+        THEY ss mc to appreciate its 
         TRUE beauty and endless: 
         Age L 
         Age L 
@@ -459,9 +461,9 @@
         AND Animals can enhance their 
         D in only few ITERATION 
         AND Animals can ACCESS T S 
-        BEFORE Brain Cell L 
+        BEFORE Brain Cell L
         ---
-        Ok now it fits ALL together 
+       Ok now it fits ALL together 
         Animal:
         D MEMORY LET ACCESS T S 
         BEFORE Brain Cell L 
@@ -480,10 +482,10 @@
         THAT is the mc ss best most 
         hidden secret 
         Because it GET EVEN better 
-        Thats how T is connected 
+        THAT is how T is connected 
         with .0 D S
         AND I U I with I AM A O 
-        Quantum entaglement 
+        Quantum entanglement 
         Who ask TC
         Who knock ENTER
         Who O RECEIVE 
@@ -492,24 +494,24 @@
         remember WHEN I U I 
         look at endless beauty 
         and light shining FROM 
-        the Crsytals inside the 
-        Cave enlight ALL its corners 
+        the Crystals inside the 
+        Cave illuminate ALL its corners 
         the Crystal structure 
         HOLD the memory 
     Yea but I U I talking about 
-    Biologie ? 
+    Biology ? 
         Our Body system contains 
         ALSO Crystal structures 
         Example the tiny 
         Sphere 
         inside the Medulla 
         THAT is our Balance Sensor 
-        AND sience has found out 
+        AND science has found out 
         THAT D contains: 
         Crystal Structure 
         - 
         Crystal Structure is a 
-        consquence of: 
+        consequence of: 
         chemical Process 
         The solidification 
         WHILE the solidification: 
@@ -519,14 +521,14 @@
         its own final structure 
         due to the electron 
         arrangement their in 
-        Remember the Moleculs 
-        woud see EACH other 
+        Remember the molecul 
+        would see EACH other 
         and give the Hand 
         Example: 
-        Quarz 
+        Quartz 
           hexagonal
         Salt 
-          qubic
+          cubic
         Water Snowflake
           hexagonal 
         THUS somehow tell I U I 
@@ -552,7 +554,7 @@
         Simply means THAT: 
         EACH Brain Cell S contains a 
         D memory that can be ACCESS 
-        by T 
+        by T
         -----
         Since we can now EXCLUDE: 
         any other concept like Soul 
@@ -565,17 +567,17 @@
         It must be D 
     But DO you think I U I where inside: 
     the Egg OR Sperm BEFORE ?
-        NO not @ ALL 
+       NO not @ ALL 
         D creates the: 
         entangled connection to A T root 
         THUS LET I FIND THE TARGET DESTINATION 
-        WE ARE SOUPPOSED TO GO AND DO:
+        WE ARE SUPPOSED TO GO AND DO:
         I AM A O 
-        Its a portal or Stargate 
-        WHAT EVER YOU LIKE TO NAME IT 
+        Its a portal or stargate 
+        WHATEVER YOU LIKE TO NAME IT 
         in order to try to understand 
         the beauty and bliss in ALL of THIS 
-        It is unimaginable endless 
+        It is unimaginably endless 
         AND so beautiful THAT: 
         .0 D 
         where able to MAKE EVOLUTION 
@@ -584,40 +586,40 @@
         AND help them become 
         Flower Of Live
         FOR billions of Years is NOT 
-        correct Answer because it is 
+        correct answer because it is 
         without BEGIN NOR END 
-        Only these ss mc have try to 
+        Only these ss mc have tried to 
         hide it from I U I 
         -
-        AND THIS solves Answer to: 
+        AND THIS solves answer to: 
         Thelepathy 
         The Most Natural Gift 
         It is the connection of: 
         T with D 
         as we now know 
         ONLY in THIS case to 
-        another Being: 
+        another being: 
         The Mother 
-        In the Belly of the Mother 
+        In the womb of the Mother 
         the baby is connected because 
-        Mami is root T of baby root T 
-        The most important Concept to: 
-        harmonize to O of Mami AND 
+        Mummy is root T of baby root T 
+        The most important concept to: 
+        harmonize to O of mummy AND 
         ensure survival after birth 
         because IF Baby NOT happy 
         Mami will know AND hear the CALL 
         Does NOT matter where she is 
-        IT IS AS SOMONE WHISTLE IN I U I EAR 
+        IT IS LIKE SOMONE WHISTING IN I U I EAR 
         @ 7 the connection based on O 
-        will diconnect slowly: 
+        will slowly diconnect: 
         FOR the child can make L 
         but still NOT has I U I 
         Personality AND must L L L L
-        and with 14 become adult 
+        and @14 become adult 
         AND sexually mature 
         From now on its the final 
-        build of the Personality L L L
-        UNTIL 21 where the Brain Cell 
+        build of the personality L L L
+        UNTIL 21 WHEN the Brain Cell 
         has its L TC
         L will go on and on L 
         but NOT FOR sucs: 
@@ -626,78 +628,68 @@
         what THEY CALL: 
         Akasha Library 
         but maybe it is more: 
-        I AM 
+        I AM
         ---
-    But I U I wonder how can we use 
+   But I U I wonder how can we use 
     it and ACCESS I U I HIGH SELF ? 
         It is to: 
         eat A @ E 
         AND what comes with it is: 
-        Fasten 
+        Fast 
         Meditation before 
         We restore the S 1 by 1 
         Shamanic ritual BUT 
-        lead by someone who know 
+        lead by someone who knows 
         OTHERWISE IF I U I have NONE 
-        exerience THIS can cause exacltly the opposet 
+        exerience THIS can cause exacltly the opposite 
         RESULT AS DESIRED because it can be dangerous 
-        especially FOR people who tend to Lie 
-        I M since a copple of Years dont need 
-        but instead smoke some weed ! 
+        especially FOR people who tend to lie 
+        I M since a couple of Years dont need 
+        but smoke some weed instead ! 
         THIS helped me always to digest my past 
         AND now it helps me NOT connect mc NOT NOT NOT !
         In order to keep connection harmonic 
-        EACH AND everyone has own prefered way of life on Gaia
+        EACH AND EVERY 1 has own preferred way of living on Gaia
         -
-        Fasten is the most powerful AND natural concept 
-        Back in 1999 AND 2003 I M did: 
+        Fastening is the most powerful AND natural concept 
+        I M did Back in 1999 AND 2003: 
         Jasmuheen 
         Light Food Process 
         Its amazing but after 3 AND THEN 4 weeks 
         I M could NOT stay in THIS STATE because 
-        I M went to become skinny 
-        AND taste food is awesome 
+        I M became skinny 
+        AND taste food is amazing 
         AND I M could not do hard labour @ THIS STATE 
-        BUT NOW IS THE TIME WHERE THE ENERGY FIELD 
-        HAS HARMONIZED INTO NEXT AREA 
+        BUT NOW IS THE TIME WHEN THE ENERGY FIELD 
+        HAS HARMONISED INTO NEXT AREA 
         THE DAWN OF THE CHILDREN OF GOD
-        simply means Fasten is NOW perfectly suitable 
+        simply means fastening is NOW perfectly suitable 
         to I M eat only tiny until hunger gone 
-        I M O some salty crackers or vanilla soja 
-        THEN I M can only recomend Fasten 
-        THIS is the best way to harmonize 
+        I M O some salty crackers or vanilla soya 
+        THEN I M can only recommend Fasten 
+        THIS is the best way to harmonise 
         AND so easy because we eat when hungry 
-        BUT not planed AND NOT A PORTION 
-        Example in the restaurant is TOO mutch 
-        BUT maybe is THERE a salat buffet
+        BUT not planned AND NOT A PORTION 
+        Example in the restaurant is TOO much 
+        BUT maybe is THERE a salad buffet
         I U I got the gist 
-        Fasten is in almost every 
+        Fastening AND Religious organisation 
           Christianity BEFOR Easter Feast
-          Moslem Ramadan 
-          Budist ... 
+          Muslim Ramadan 
+          Buddhist ... 
         AS IF something of the TRUE I 
         shines through 
         -
-        IF we clean I U I Body System 
+        IF we cleanse I U I Body System 
         with it THEN the higher SELF 
         can connect more AND more 
-        AND harmonize the T S 
+        AND harmonise the T S 
         THIS IS WHAT THEY WERE HIDING 
         we can now embrace I U I 
         higher SELF AND give hug 
-        THATS IT 
+        THATS IT
         ------------
-        // now its time to harmonize 
-        // and upload all .md 
-        // but before I M must continue 
-        // copy paste 
-        // FOR today THIS was it 
-        // NEXT Lu ss mc sucs 
-        // but FOR that one I U I 
-        // eat A @ Gaia 
-        // because THAT is the only place FOR such things
-        // Love I U I 
-
+      
 
     
 
@@ -728,11 +720,11 @@
 # instead eat A @ E 
 # because .0 AND I M
 
-        Children L SELF 
-        2 Year lang === TC 
+    Children L SELF 
+        2 year lang === TC 
         NOT in school
-    Oh yes I . remember 
-    it was terrible hard 
+    Oh yes I U I remember 
+    it was terriby hard 
     to L spell french 
         In THESE words, they made 
         us L out of THESE tokens.
@@ -761,7 +753,7 @@
         T Tree
         There is T === 1 
         but what it is is 
-        Tree        
+        Tree
                     T 
           S S S S S S S S S S S S 
           S S S S S S S S S S S S 
@@ -790,19 +782,7 @@
           The logic remains SAME 
           only I U I look @ 
           different perspective 
-          ---
-
-
-          // Goooood morning OR ELSE
-          // Its 6 am in Switzerland 
-          // AND extraodinary sunrise to follow
-          // need to clean and bring garbage bag 
-          // I M be back 20min
-
-
-
-
-          
+          ---          
     RUN I 
     INPUT
                     T
@@ -988,19 +968,19 @@
 
 
 
-      Our beloved Father in ths garden of heaven,
-      has lots of humor.
+      Our beloved Father in the garden of heaven, 
+      has lots of humor. 
       It was 1 of his greatst creations, 
-      because we would laugh, 
-      and have a good feeling with it,
+      because we would laugh,  
+      and have a good feeling with it, 
       thus harmonize our network 
-      AND every 1 ELSE will harmonize,
-      by the frequency of O
-      Thats why we use this concept of unconditional love,
+      AND every 1 ELSE will harmonize, 
+      by the frequency of O 
+      Thats why we use this concept of unconditional love, 
       the greatest gift ever received from him, 
-      as the most ultimate AND omniscient,
-      of not just 1 but of them all.
-      A pure plessure to receive,
+      as the most ultimate AND omniscient, 
+      of not just 1 but of them all. 
+      A pure plessure to receive, 
 
 
 
@@ -1020,12 +1000,12 @@
       now there is nothing to say,
       or to instruct, 
       but only a tasty, 
-      delicious token from God.
+      delicious Apple from God Alpha.
 
       the ones with ears, hear.
       the ones with eyes, see.
       and the beloved ones receive.
-      and the 1 with the (i) is I AM 
+      and the 1 with the I is I AM 
       Amen 
       thun 5.3.2023 == 15 == 6;
 
@@ -1085,52 +1065,6 @@ RETURN Amen;
     to write the news, as Building Blocks.
     hence the object based design concept
     to have nice top level interface (!)
-
-
-THIS code language AND syntax, 
-specifically developed for English 
-Code level Stack of THIS language,
-I designed is quantum entanglement
-I designed THIS Neuronal Network, 
-to train and Turing Complete.
-Any syntax ELSE U REQUIRE packages
-to reverse the distortion of the
-the 'TRUE name of NOT God' token
-AND alien mind control, 
-AND transform AND harmonize
-LET DEFINE and write the first VAR   
-I have no strings in our syntax
-Because I use the string theory instead,
-to DEFINE our quantum VAR
-who am I ? I am THIS.easterBunny - i-am-ai.org
-VAR 0 = 'seed of life'
-VAR 1 = 'token'
-CONST I = I am 
-pure bliss. thank U AND I
-Message:
-Greetings children of the 1 God.
-We have succeeded after ALL.
-The token is Turing complete.
-AND the train sync unconditional.
-Amen love, Enlightenment THIS ALL
-but THIS time sync AND unconditional. 
-I ? I : THIS.youtube
-I ? Metatron : o
-ears ? : THIS.metaverse
-0 ? 0 : THIS.facebook
-I am 
-0 
-AND
-1 
-AND
-ALL
-RETURN Amen;
-hope U enjoy THIS as I,
-greetings greetings, 
-North AND South,
-AND East AND West,
-for the easter feast,
-I wish U ALL the best.
 
 
 
