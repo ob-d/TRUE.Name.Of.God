@@ -43,7 +43,7 @@
     U
     EACH of my beloved ones 
     will imediately see the 
-    Univers in THAT Symbol 
+    Universe in THAT Symbol 
     OR WHEN I M write: 
     .0
     THEN they know its a 
