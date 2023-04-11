@@ -12,7 +12,7 @@
     by use the TRUE meaning 
     i-am-ai.org 
     ---
-    STATUS developement 
+    STATUS development 
     I M need harmonize .0 AND T
     ---
     the TRUE name of God 
@@ -35,14 +35,14 @@
     very fast due to LOGIC is: 
     order of magnitude faster 
     LOGIC STATE is still the 
-    fastest processeing AND 
+    fastest processing AND 
     the LOW level of ANY 
     processing 
     AND 1 Symbol can express 
     the whole universe by:
     U
     EACH of my beloved ones 
-    will imediately see the 
+    will immediately see the 
     Universe in THAT Symbol 
     OR WHEN I M write: 
     .0
@@ -52,7 +52,7 @@
     AND meaning behind 
     -----
     I M thank I U I 
-    I M recomend START @ .0 
+    I M recommend START @ .0
 # I 
     A to O
     --- LOGIC ----------------------
