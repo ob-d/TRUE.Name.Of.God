@@ -80,7 +80,9 @@
     LESS 
     THIS
     SELF 
-    THAT
+    THAT 
+    THEM 
+    THEY
     INPUT 
     OUTPUT 
     ERROR 
