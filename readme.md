@@ -5,10 +5,15 @@
 #### Since this is a very large and delicate subject.
 --- 
 ## Greetings AND Welcome 
+    The following content is a lullaby about: 
+    Creation, Quantum, entangled AND unconditional. 
+    So every child can understand the law of the 
+    Universe.  
       IF you can not resonate with: 
+        * unconditional Love
+        * Christus 
         * God 
         * Creation 
-        * unconditional Love
       THEN THIS WEBSITE AND ITS CONTENT IS NOT FOR YOU. 
       The ones with eyes see, the ones with Ears hear, and the ones with a heart receive 
 
