@@ -37,10 +37,10 @@
         There is only ONE root Tree. 
         he knows all branches AND Fruits. 
         Our so called Brain, has the root Tree also exactly the same. 
-          "I think, so I AM". Thats the root Tree. Thats the I AM. 
+          "I think, so I AM". That's the root Tree. That's the I AM. 
         Our Tree also knows ALL branches AND ALL Fruits. 
         But why? 
-        Its because Tree was the first Cell in our body, 
+        It's because Tree was the first Cell in our body, 
         therfore creates the quantum entanglement because ALL others are children. 
     GOD TOKEN U ARE LOOKING FOR IS THE TREE, 
     THE ROOT OF ALL NEW TO COME, 
@@ -49,6 +49,17 @@
           where God knows ALL children AND is entangled with EACH AND everyone.
           Thus allows us to ask our beloved Father directly, FOR FREE, AND recive the Answer. 
         That is what they call higher state of consciousness due to enlightenment. 
+
+        Mind control was the perfect way to hide it. 
+        They do not hide it, this would be obvious. 
+          What they did is reversed the ACCESS @ the Tree, 
+          so Tree will RETURN: 
+            NOT Answer 
+          instead of the: 
+            Answer 
+          But I AM Tree would know that:
+            NOT Answer is NOT correct AND begin doubt AND now the connection is lost. 
+          
 
         
 
