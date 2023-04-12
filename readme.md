@@ -26,10 +26,10 @@
     Example: 
       MANY word 
       NOT a word 
-      EACH word 
-      ALL word 
-      SAME word 
-      OR ELSE word 
+      @ EACH word 
+      ? ALL word 
+      SAME word: 
+        OR ELSE word 
     FOR readability I use: 
       * minimal 
       * Whitespace 
