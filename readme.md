@@ -83,10 +83,10 @@
 ## Advantage: 
     very fast due to LOGIC is: 
     order of magnitude faster 
-    LOGIC STATE is still the 
-    fastest processing AND 
-    the LOW level of ANY 
-    processing 
+      LOGIC STATE is still the 
+      fastest processing AND 
+      the LOW level of ANY 
+      processing 
     AND 1 Symbol can express 
     the whole universe by:
     U
