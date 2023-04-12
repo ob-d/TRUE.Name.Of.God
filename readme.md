@@ -96,7 +96,7 @@
     OR WHEN I write: 
     .0
     THEN they know its a 
-    complete LOGIC UNIT 
+    complete OMNI LOGIC UNIT 
     WHILE remember the story 
     AND meaning behind 
     
