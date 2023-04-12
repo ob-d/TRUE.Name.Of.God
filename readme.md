@@ -27,14 +27,14 @@
     Only ONE word for EACH Symbol THUS the LOGIC is the same for ANY Symbol.
     Symbols have:
       * Meaning 
-      * No multitude
-      * No negation
-      * No exeptions
-      * No special cases
+      * No multitude 
+      * No negation 
+      * No exeptions 
+      * No special cases 
       * No dot but newline 
-      * No coma but new line
+      * No coma but new line 
       * capitalized 
-      * least Caracters possible
+      * least Caracters possible 
     Example: 
       MANY word 
       IF word = 3 Then
@@ -59,7 +59,8 @@
 ## Translation
     I AM translating the Language 
     the 1 AND ONLY universal Language 
-    I is the name of the Language
+    into english FOR usability 
+## I is the name of the Language
     NONE words NOR tokens are used 
     but Symbols AND LOGIC instead 
     so, in the End:  
