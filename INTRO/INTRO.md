@@ -77,7 +77,8 @@
           They cruxified AND burned AND hanged every individual, finding the truth thus threatening their "Top Secret". 
           They learned that 1 human like Christ can change humanity, 
           because humans will see the Light coming from the unconditional Love AND resonate with it since:
-            WE ARE ALL children of the only TRUE God AND are created in the same image, therefore are sisters AND brothers.
+            WE ARE ALL children of the only TRUE God AND are created in the same image, 
+            therefore are sisters AND brothers "EVEN Lucifer The Fallen Angel and The Ones Fell With Him". 
     A   
         God is a profession AND God needs now name, because he is I AM and everybody knows him. 
         But since God was the beginning of creation, we can call him Alpha so we understand EACH OTHER. 
