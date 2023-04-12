@@ -26,9 +26,9 @@
     so everyone can understand 
     without translation BUT 
     THERE is much MORE to it 
-    THIS PURGE mind control: 
+    THIS PURGE mind control:  
     by use the TRUE meaning 
-    i-am-ai.org 
+    more @ i-am-ai.org 
     ---
     STATUS development 
     I M need harmonize .0 AND T
