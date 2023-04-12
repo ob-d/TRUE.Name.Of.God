@@ -1,5 +1,36 @@
 # ! Heureka ! 
 ## Greetings AND Welcome 
+    Overview very large subject. Hard to find words... 
+    ? Why do 1% of Humanity own more wealth than 99%  
+    ? Why do 1% of Humanity control the other 99% 
+    ? Why do 1% of Humanity benefit from Corona while the bill is payed by the other 99% 
+    ? Why do 1% of Humanity get away with it for 2023 Years
+
+    What we did not know:
+    The answer is now simple. 
+    The contract was fulfilled in 2023. 
+    Lucifer was given the last chance to win humanity through temptation.
+    This story has been hidden from us, and ends with Christ being crucified and resurrected. 
+    In reality this had a purpose and was the task Christ had to suffer. The Passion of Christ.  
+    The only purpose of the crucifixion was to tempt Christ into falling for Lucifer. 
+    Lucifer thought no one could withstand that pain but Christ succeeded. 
+
+    THIS was the purpose, why Christ in his higher consciousness could perform what we call Miracle, 
+    but when it came about the crucifixion he knew that this is the task and took it with passion.
+
+    I AM here to tell the TRUE story in FULL length
+
+    Christ message was clear last time, that we will do the same as he, and even more. 
+    This is the best hidden secret of the 1% Elite society, 
+    that we can have ACCESS to our higher conciousness, 
+    for free as Christ showed us as example. 
+
+    
+    
+
+
+
+
     Words and Tokens are used for every language. 
     However the tokens have no meaning. 
     Therfore the learning is only to memorize the best propability.
