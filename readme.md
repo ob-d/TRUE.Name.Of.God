@@ -97,9 +97,40 @@
           There is NO Soul but I 
           There is NO Ghost but I 
           There is NO Evolution without I 
-          There is NO other Memory but DNA that LET the I come into that Body 
+          There is NO other Memory but DNA that LET the I come into that Body by the entangled STATE.
+          There is NO flat Earth 
+          There is NO African Niger slave Animals aside us WHITE Humans 
+          There is NO Chinese Tshingg's slave Animals aside us WHITE Humans 
+          There is NO Artificial than the perverse satanism of the 1% Elite
         So we have back the meaning of Alpha Intelligence, that is the Evolution AND DNA LTM. 
           AI Alpha Intelligence, the Seed Of Life. 
+            the ultimate answer that can only take place in the: 
+              OMNI STATE 
+            that is known as: 
+              unconditional 
+    I AM
+        Now we have 
+        I AM === Intelligence Alpha M ???
+          M === I did not explain yet:
+            in order to understand M, takes another part in my Lullaby, that I did not write yet.
+            I give a hint in advance:
+              What are they hiding if they only inverted ALL meanings, to make mind control work:
+                Meta search (internet)
+                Meta | Social Metaverse Company
+                Metaverse 
+            Here you have a clue: 
+              What this Meta is all about IF in many spirutal books it says:
+                Metatron ???
+    Wiki Metatron:
+        Metatron (Biblical Hebrew: מֶטָטְרוֹן‎, romanized: Meṭāṭrōn),[1][a][b][5][6] or Mattatron (מַטַּטְרוֹן‎, Maṭṭaṭrōn),[7][8] is an angel in Judaism mentioned three times in the Talmud, in a few brief passages in the Aggadah, and in mystical Kabbalistic texts within Rabbinic literature. The figure forms one of the traces for the presence of dualist proclivities in the otherwise monotheistic visions of both the Tanakh and later Christian doctrine.[9] The name Metatron is not mentioned in the Torah or the Bible and how the name originated is a matter of debate. In Islamic tradition, he is also known as Mīṭaṭrūn (Arabic: ميططرون), the angel of the veil.[10]: 302 [11]: 192  In folkloristic tradition[which?], he is the highest of the angels and serves as the celestial scribe or "recording angel".[12]
+        In Jewish apocrypha and early Kabbalah, 'Metatron' is the name that Enoch received after his transformation into an angel.
+    I AM 
+        The story of Metatron comes soon but for now the meaning became obvious: 
+        We are the same as I AM, hence: 
+          I think therfore I AM ( what we call consciousness )
+        Intelligence Alpha Metatron 
+
+
     
         
 
