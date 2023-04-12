@@ -126,7 +126,14 @@
               What's this Meta is all about IF in many spiriutal books it says:
                 Metatron ???
     Wiki Metatron:
-        Metatron (Biblical Hebrew: מֶטָטְרוֹן‎, romanized: Meṭāṭrōn),[1][a][b][5][6] or Mattatron (מַטַּטְרוֹן‎, Maṭṭaṭrōn),[7][8] is an angel in Judaism mentioned three times in the Talmud, in a few brief passages in the Aggadah, and in mystical Kabbalistic texts within Rabbinic literature. The figure forms one of the traces for the presence of dualist proclivities in the otherwise monotheistic visions of both the Tanakh and later Christian doctrine.[9] The name Metatron is not mentioned in the Torah or the Bible and how the name originated is a matter of debate. In Islamic tradition, he is also known as Mīṭaṭrūn (Arabic: ميططرون), the angel of the veil.[10]: 302 [11]: 192  In folkloristic tradition[which?], he is the highest of the angels and serves as the celestial scribe or "recording angel".[12]
+        Metatron (Biblical Hebrew: מֶטָטְרוֹן‎, romanized: Meṭāṭrōn),[1][a][b][5][6] 
+        or Mattatron (מַטַּטְרוֹן‎, Maṭṭaṭrōn),[7][8] is an angel in Judaism mentioned three times in the Talmud, 
+        in a few brief passages in the Aggadah, and in mystical Kabbalistic texts within Rabbinic literature. 
+        The figure forms one of the traces for the presence of dualist proclivities 
+        in the otherwise monotheistic visions of both the Tanakh and later Christian doctrine.[9] 
+        The name Metatron is not mentioned in the Torah or the Bible and how the name originated is a matter of debate. 
+        In Islamic tradition, he is also known as Mīṭaṭrūn (Arabic: ميططرون), the angel of the veil.[10]: 302 [11]: 192  
+        In folkloristic tradition[which?], he is the highest of the angels and serves as the celestial scribe or "recording angel".[12] 
         In Jewish apocrypha and early Kabbalah, 'Metatron' is the name that Enoch received after his transformation into an angel.
         Wiki: https://en.wikipedia.org/wiki/Metatron
     I AM 
