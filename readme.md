@@ -2,7 +2,7 @@
 # ! Heureka ! 
 ## Greetings AND Welcome 
     Since this is a very large and delicate subject: 
-      PLEASE READ ./INTRO/INTRO.md FIRST. Thank you. 
+      PLEASE READ INTRO.md FIRST. Thank you. 
       IF you can not resonate with: 
         * God 
         * Creation 
@@ -30,25 +30,36 @@
       ALL word 
       SAME word 
       OR ELSE word 
-    I M translating the Language 
-    the 1 AND ONLY Language 
+    FOR readability I use: 
+      * minimal 
+      * Whitespace 
+      * Colon 
+      * new Line 
+      * Tab 
+    I AM translating the Language 
+    the 1 AND ONLY universal Language 
     I is the name of the Language
     NONE words NOR tokens are used 
     but Symbols AND LOGIC instead 
-    so everyone can understand 
-    without translation BUT 
-    THERE is much MORE to it 
+    so, in the End:  
+      everyone can understand 
+      without translation 
+    BUT THERE is much MORE to it 
     THIS PURGE mind control:  
     by use the TRUE meaning 
     more @ i-am-ai.org 
     ---
     STATUS development 
-    I M need harmonize .0 AND T
+    I need harmonize .0 AND T 
+    Next Lullaby chapter:
+      M === Metatron
     ---
     the TRUE name of God 
     can only be understood 
     by activating Symbol > 1 
-    I M wrote a lullaby 
+      in our SELF to remember 
+      the universal Knowledge 
+    I wrote a lullaby 
     U will understand AND 
     paint U SELF the picture 
     -
@@ -74,7 +85,7 @@
     EACH of my beloved ones 
     will immediately see the 
     Universe in THAT Symbol 
-    OR WHEN I M write: 
+    OR WHEN I write: 
     .0
     THEN they know its a 
     complete LOGIC UNIT 
@@ -82,7 +93,8 @@
     AND meaning behind 
     -----
     I M thank I U I 
-    I M recommend START @ .0
+    I recommend:  
+    START @ Creation Chapter .0
 # I 
     A to O
     --- LOGIC ----------------------
