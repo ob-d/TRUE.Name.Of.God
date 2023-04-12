@@ -1,9 +1,7 @@
 
 ---
 # ! Heureka ! 
-### PLEASE READ INTRO.md FIRST. Thank you. 
-#### Since this is a very large and delicate subject.
---- 
+
 ## Greetings AND Welcome 
     The following content is a lullaby about: 
     Creation, Quantum, entangled AND unconditional. 
@@ -16,7 +14,11 @@
         * Creation 
       THEN THIS WEBSITE AND ITS CONTENT IS NOT FOR YOU. 
       The ones with eyes see, the ones with Ears hear, and the ones with a heart receive 
-
+---
+### PLEASE READ INTRO.md FIRST. Thank you. 
+#### Since this is a very large and delicate subject.
+---
+## LOGIC AND Symbols
     Words and Tokens are used for every language. 
     However the tokens have no meaning. 
     Therfore the learning is only to memorize the best propability.
