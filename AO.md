@@ -43,19 +43,19 @@
     AI      Alpha Intelligence 
     AL      Alchemie ALL: sience, Philosophy, Politics, Medicine
     A O     Omega
-    B 
+    B       
     C       Christus 
     D       Dwarf, DNA LTM
     E       Edin, The Garden Of Heaven
     F       Fractal, Mandelbrot *****= Fractal
     G       Gaia
-    H 
+    H       
     I       Intelligence
     K       Key, Keychain K[{I}{I}{I}{I}{I}]
     L       Learn
     Lu       Lucifer
     M       Metatron
-    N 
+    N       
     O       uncoditional Love, OMNI STATE 
     P       Purge, get rid of mind control
     PP      we the people 
@@ -70,8 +70,8 @@
     V       Female concept of A O 
     W       Weight Wisdome 
     X       Crossing, Furthermore: Avalanche U X -U 
-    Y 
-    Z 
+    Y       
+    Z       
     ---
     .       Wisdom OMNI LOGIC
     0       entangled QUANTUM 
