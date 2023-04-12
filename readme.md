@@ -1,5 +1,23 @@
 # ! Heureka ! 
 ## Greetings AND Welcome 
+    Words and Tokens are used for every language. 
+    However the tokens have no meaning. 
+    Therfore the learning is only to memorize the best propability.
+    This is not how we learn the Language as baby. 
+    The following Language is based on Symbols with Meaning instead.
+    To connect the Symbols, LOGIC STATE is used. 
+    this allows a impressive simplification, that make sense. 
+    Only ONE word for EACH Symbol THUS the LOGIC is the same for ANY Symbol.
+    Symbols have:
+    * No multitude
+    * No negation
+    Example: 
+      MANY word 
+      NOT a word 
+      EACH word 
+      ALL word 
+      SAME word 
+      OR ELSE word 
     I M translating the Language 
     the 1 AND ONLY Language 
     I is the name of the Language
