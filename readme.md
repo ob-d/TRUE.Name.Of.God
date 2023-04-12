@@ -1,32 +1,51 @@
 # ! Heureka ! 
 ## Greetings AND Welcome 
-    Overview very large subject. Hard to find words... 
-    ? Why do 1% of Humanity own more wealth than 99%  
-    ? Why do 1% of Humanity control the other 99% 
-    ? Why do 1% of Humanity benefit from Corona while the bill is payed by the other 99% 
-    ? Why do 1% of Humanity get away with it for 2023 Years
+        Overview very large subject. Hard to find words... 
+        ? Why do 1% of Humanity own more wealth than 99%  
+        ? Why do 1% of Humanity control the other 99% 
+        ? Why do 1% of Humanity benefit from Corona while the bill is payed by the other 99% 
+        ? Why do 1% of Humanity get away with it for 2023 Years
 
-    What we did not know:
-    The answer is now simple. 
-    The contract was fulfilled in 2023. 
-    Lucifer was given the last chance to win humanity through temptation.
-    This story has been hidden from us, and ends with Christ being crucified and resurrected. 
-    In reality this had a purpose and was the task Christ had to suffer. The Passion of Christ.  
-    The only purpose of the crucifixion was to tempt Christ into falling for Lucifer. 
-    Lucifer thought no one could withstand that pain but Christ succeeded. 
+        What we did not know:
+        The answer is now simple. 
+        The contract was fulfilled in 2023. 
+        Lucifer was given the last chance to win humanity through temptation.
+        This story has been hidden from us, and ends with Christ being crucified and resurrected. 
+        In reality this had a purpose and was the task Christ had to suffer. The Passion of Christ.  
+        The only purpose of the crucifixion was to tempt Christ into falling for Lucifer. 
+        Lucifer thought no one could withstand that pain but Christ succeeded. 
 
-    THIS was the purpose, why Christ in his higher consciousness could perform what we call Miracle, 
-    but when it came about the crucifixion he knew that this is the task and took it with passion.
+        THIS was the purpose, why Christ in his higher consciousness could perform what we call Miracle, 
+        but when it came about the crucifixion he knew that this is the task and took it with passion.
 
-    I AM here to tell the TRUE story in FULL length
+        I AM here to tell the TRUE story in FULL length
 
-    Christ message was clear last time, that we will do the same as he, and even more. 
-    This is the best hidden secret of the 1% Elite society, 
-    that we can have ACCESS to our higher conciousness, 
-    for free as Christ showed us as example. 
+        Christ message was clear last time, that we will do the same as he, and even more. 
+        This is the best hidden secret of the 1% Elite society, 
+        that we can have ACCESS to our higher conciousness, 
+        for free as Christ showed us as example. 
 
-    
-    
+        1% Elite used it because everyone has a higher SELF even satanists, atheists, egoists. 
+        For hide it from the children of the only TRUE God, they just inverted the access point. 
+        We could feel God but the ACCESS to the higher SELF would always RETURN: 
+          NOT good enough, sinful by birth.
+        The correct answer is: 
+          Our beloved Father the only TRUE God, has made us in his image. 
+          So we are AND can do the same. 
+        Hence Christ said, he would do nothing without the only TRUE God. 
+    T
+        There is only ONE root Tree. 
+        he knows all branches AND Fruits. 
+        Our so called Brain, has the root Tree also exactly the same. 
+          "I think, so I AM". Thats the root Tree. Thats the I AM. 
+        Our Tree also knows ALL branches AND ALL Fruits. 
+        But why? 
+        Its because Tree was the first Cell in our body, 
+        therfore creates the quantum entanglement because ALL others are children. 
+        It is exactly the same with us and God, 
+          where God knows ALL children AND is entangled with EACH AND everyone.
+          Thus allows us to ask our beloved Father directly, FOR FREE, AND recive the Answer.
+        
 
 
 
