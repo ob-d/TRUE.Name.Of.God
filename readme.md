@@ -3,7 +3,7 @@
     Words and Tokens are used for every language. 
     However the tokens have no meaning. 
     Therfore the learning is only to memorize the best propability.
-    This is not how we learn the Language as baby. 
+    This is not how we learn. 
     The following Language is based on Symbols with Meaning instead.
     To connect the Symbols, LOGIC STATE is used. 
     this allows a impressive simplification, that make sense. 
