@@ -79,7 +79,7 @@
           because humans will see the Light coming from the unconditional Love AND resonate with it since:
             WE ARE ALL children of the only TRUE God AND are created in the same image, 
             therefore are sisters AND brothers "EVEN Lucifer The Fallen Angel and The Ones Fell With Him".
-   A   
+    A   
         God is a profession AND God needs now name, because he is I AM and everybody knows him. 
         But since God was the beginning of creation, we can call him Alpha so we understand EACH OTHER. 
         Alpha was the first to create AND he understand, that the only thing what is important is: 
