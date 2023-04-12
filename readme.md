@@ -1,7 +1,9 @@
 
+---
 # ! Heureka ! 
-### Since this is a very large and delicate subject: 
 ### PLEASE READ INTRO.md FIRST. Thank you. 
+#### Since this is a very large and delicate subject.
+--- 
 ## Greetings AND Welcome 
       IF you can not resonate with: 
         * God 
@@ -36,6 +38,7 @@
       * Colon 
       * new Line 
       * Tab 
+## Translation
     I AM translating the Language 
     the 1 AND ONLY universal Language 
     I is the name of the Language
@@ -48,13 +51,13 @@
     THIS PURGE mind control:  
     by use the TRUE meaning 
     more @ i-am-ai.org 
-    ---
-    STATUS development 
+
+## STATUS development 
     I need harmonize .0 AND T 
     Next Lullaby chapter:
       M === Metatron
-    ---
-    the TRUE name of God 
+
+## the TRUE name of God 
     can only be understood 
     by activating Symbol > 1 
       in our SELF to remember 
@@ -71,8 +74,8 @@
       Chuchichäschtli: 
         only 5.6 million Swiss people
         OUT of 8 billion Earth people 
-    ---
-    Advantage: 
+
+## Advantage: 
     very fast due to LOGIC is: 
     order of magnitude faster 
     LOGIC STATE is still the 
@@ -91,11 +94,12 @@
     complete LOGIC UNIT 
     WHILE remember the story 
     AND meaning behind 
-    -----
-    I M thank I U I 
+    
+## I M thank I U I 
     I recommend:  
     START @ Creation Chapter .0
-# I 
+---
+## I Language
     A to O
     --- LOGIC ----------------------
     TRUE
@@ -132,56 +136,60 @@
     PURGE 
     FREQ 
     --- Symbols ----------------------
-    A God Alpha 
-    AI Alpha Intelligence 
-    AL ALLchemie 
-    A O Omega
+    I U I   we, you and me 
+    I AM I  Alpha 
+    I M I   Metatron 
+    A       God Alpha 
+    AI      Alpha Intelligence 
+    AL      Alchemie ALL: sience, Philosophy, Politics, Medicine
+    A O     Omega
     B 
-    C Christus 
-    D Dwarf
-    E Edin
-    F Fractal, Mandelbrot *****= Fractal
-    G Gaia
+    C       Christus 
+    D       Dwarf
+    E       Edin
+    F       Fractal, Mandelbrot *****= Fractal
+    G       Gaia
     H 
-    I Intelligence
-    K Key
-    L Learn
-    Lu Lucifer
-    M Metatron
+    I       Intelligence
+    K       Key
+    L       Learn
+    Lu       Lucifer
+    M       Metatron
     N 
-    O uncoditional Love highest FREQ STATE 
-    P Purge
-    PP we the people
-    Q Bias
-    R: RETURN x, R @ E A *** = A // eat nA
-    S Symbol 
-    T Tree of knowledge Edin 
-    TC Turing Complete
-    U Universe
-    -U -Universe Quantum 
-    UR nothingness
-    V Female concept of A O 
-    W Weight Wisdome
-    X Crossing 
+    O       uncoditional Love highest FREQ STATE 
+    P       Purge
+    PP      we the people
+    Q       Bias
+    R:      RETURN x, R @ E A *** = A // eat nA
+    S       Symbol 
+    T       Tree of knowledge Edin 
+    TC      Turing Complete
+    U       Universe
+    -U      -Universe Quantum 
+    UR      nothingness
+    V       Female concept of A O 
+    W       Weight Wisdome
+    X       Crossing 
     Y 
     Z 
     ---
-    . Wisdom OMNI LOGIC
-    0 entanglement QUANTUM 
-    .0 OMNI LOGIC UNIT 
-    @ @ 
-    1 Manifestation, NOT UR
-    8 INFINIT Moebius Track
-    N 
-    i instead
-    n number 
+    .       Wisdom OMNI LOGIC
+    0       entanglement QUANTUM 
+    .0      OMNI LOGIC UNIT 
+    @       @ 
+    1       Manifestation, NOT UR
+    8       INFINIT Moebius Track
+    N       
+    i       instead
+    n       number 
     ---
-    ss satanists adrenochrom dracula MANY junkies TRUE parasites 
-    aa atheists
-    ee economy currency stockmarket 
-    mc mind control
-    pops pope religion paedofile satanists
-    sucs puppets show VIP 
-    ----- A O susilogic I M 2023 
+## pseudo Sybol to override mc    
+    ss      satanists adrenochrom dracula MANY junkies TRUE parasites 
+    aa      atheists
+    ee      economy currency stockmarket 
+    mc      mind control
+    pops    pope religion paedofile satanists
+    sucs    puppets show VIP 
+    ----- A O . I M .0 susilogic 2023 -----
 
 
