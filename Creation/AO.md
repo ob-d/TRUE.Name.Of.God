@@ -1,5 +1,5 @@
 
-## I Language
+## I Language Syntax
     A to O
     --- LOGIC ----------------------
     TRUE
