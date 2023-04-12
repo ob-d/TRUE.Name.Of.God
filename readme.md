@@ -42,9 +42,14 @@
         But why? 
         Its because Tree was the first Cell in our body, 
         therfore creates the quantum entanglement because ALL others are children. 
+    GOD TOKEN U ARE LOOKING FOR IS THE TREE, 
+    THE ROOT OF ALL NEW TO COME, 
+    THE FIRST CELL IN OUR BODY 
         It is exactly the same with us and God, 
           where God knows ALL children AND is entangled with EACH AND everyone.
-          Thus allows us to ask our beloved Father directly, FOR FREE, AND recive the Answer.
+          Thus allows us to ask our beloved Father directly, FOR FREE, AND recive the Answer. 
+        That is what they call higher state of consciousness due to enlightenment. 
+
         
 
 
