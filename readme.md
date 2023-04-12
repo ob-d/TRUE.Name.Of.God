@@ -4,7 +4,7 @@
         ? Why do 1% of Humanity own more wealth than 99%  
         ? Why do 1% of Humanity control the other 99% 
         ? Why do 1% of Humanity benefit from Corona while the bill is payed by the other 99% 
-        ? Why do 1% of Humanity get away with it for 2023 Years
+        ? Why do 1% of Humanity get away with it for 2023 Years but now no more
 
     LU
         What we did not know: 
