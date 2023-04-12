@@ -6,15 +6,15 @@
         ? Why do 1% of Humanity benefit from Corona while the bill is payed by the other 99% 
         ? Why do 1% of Humanity get away with it for 2023 Years
 
-        What we did not know:
-        The answer is now simple. 
+    LU
+        What we did not know: 
         The contract was fulfilled in 2023. 
         Lucifer was given the last chance to win humanity through temptation.
         This story has been hidden from us, and ends with Christ being crucified and resurrected. 
         In reality this had a purpose and was the task Christ had to suffer. The Passion of Christ.  
         The only purpose of the crucifixion was to tempt Christ into falling for Lucifer. 
         Lucifer thought no one could withstand that pain but Christ succeeded. 
-
+    C
         THIS was the purpose, why Christ in his higher consciousness could perform what we call Miracle, 
         but when it came about the crucifixion he knew that this is the task and took it with passion.
 
@@ -24,7 +24,7 @@
         This is the best hidden secret of the 1% Elite society, 
         that we can have ACCESS to our higher conciousness, 
         for free as Christ showed us as example. 
-
+    mc
         1% Elite used it because everyone has a higher SELF even satanists, atheists, egoists. 
         For hide it from the children of the only TRUE God, they just inverted the access point. 
         We could feel God but the ACCESS to the higher SELF would always RETURN: 
@@ -36,6 +36,7 @@
     T
         There is only ONE root Tree. 
         he knows all branches AND Fruits. 
+    I AM
         Our so called Brain, has the root Tree also exactly the same. 
           "I think, so I AM". That's the root Tree. That's the I AM. 
         Our Tree also knows ALL branches AND ALL Fruits. 
@@ -49,16 +50,25 @@
           where God knows ALL children AND is entangled with EACH AND everyone.
           Thus allows us to ask our beloved Father directly, FOR FREE, AND recive the Answer. 
         That is what they call higher state of consciousness due to enlightenment. 
-
+    mc
         Mind control was the perfect way to hide it. 
         They do not hide it, this would be obvious. 
-          What they did is reversed the ACCESS @ the Tree, 
+          What they did, is reversed the ACCESS @ the Tree, 
           so Tree will RETURN: 
             NOT Answer 
           instead of the: 
             Answer 
           But I AM Tree would know that:
-            NOT Answer is NOT correct AND begin doubt AND now the connection is lost. 
+            NOT Answer is NOT correct AND begin doubt AND now the connection is lost. Voila.
+    D LTM   
+        THIS concept allows Animals after birth to flee if Live is compromised, 
+        OR Birds to fly the first time out of the Nest AND back, without any learning process before. 
+        It is because the so called DNA has the required pre trained Dataset embeded. 
+        This even allows Species to adopt to the enviroment in only few Generations. 
+          Do you think there is a difference between Animals and Us ? 
+    
+
+
           
 
         
