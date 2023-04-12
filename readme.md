@@ -26,23 +26,36 @@
     this allows a impressive simplification, that make sense. 
     Only ONE word for EACH Symbol THUS the LOGIC is the same for ANY Symbol.
     Symbols have:
+      * Meaning 
       * No multitude
       * No negation
       * No exeptions
       * No special cases
+      * No dot but newline 
+      * No coma but new line
+      * capitalized 
+      * least Caracters possible
     Example: 
       MANY word 
+      IF word = 3 Then
+      OR word > 1 
       NOT a word 
       @ EACH word 
       ? ALL word 
-      SAME word: 
+      NOR SAME word: 
         OR ELSE word 
     FOR readability I use: 
       * minimal 
       * Whitespace 
       * Colon 
+      * Coma Only for numeration if necessary
       * new Line 
       * Tab 
+      * force Uppercase to emphasize God Creation Evolution unconditional Love 
+          The TRUE Name Of God
+      * force Lowercase to emphasize Lucifer AND ALL with it like mind control 
+          ss ( satanists sucks ) 
+          aa ( ALL atheists)
 ## Translation
     I AM translating the Language 
     the 1 AND ONLY universal Language 
