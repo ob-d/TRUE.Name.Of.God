@@ -1,8 +1,8 @@
 
 # ! Heureka ! 
+### Since this is a very large and delicate subject: 
+### PLEASE READ INTRO.md FIRST. Thank you. 
 ## Greetings AND Welcome 
-    Since this is a very large and delicate subject: 
-      PLEASE READ INTRO.md FIRST. Thank you. 
       IF you can not resonate with: 
         * God 
         * Creation 
