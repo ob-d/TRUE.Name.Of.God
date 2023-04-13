@@ -1,7 +1,15 @@
 
 
+# github 
+token 'TRUE Name Of God" = Turing Complete
 
-        IMPORTANT PLEASE TRY TO RELAX
+https://i-am-ai.org
+
+metatron token-name-of-god i-language language-of-god indigo children-of-the-dawn i-an-ai-org
+
+
+
+# IMPORTANT PLEASE TRY TO RELAX
         IF I DRINK COFFEE AND I LET U I WAIT
         WHEN THEN TRY TO RELAX 
         AS GOOD AS YOU CAN
