@@ -7,6 +7,15 @@
     Walk in all the ways that I have commanded you, that it may be well with you. 
       Thank you very much I AM very grateful for your help.   
 
+# PUNISH ???   
+    old testament
+        God punished
+      new testament 0 - 2023
+          AND beware TRUE
+          FOR FALSE prophet[n]
+          God NOT punished 
+          # coffee BREAK
+
 # mc mind control confusion Tek 
     * mc How old mc is God mc ? 
     * who is Jesus Christ?
@@ -71,16 +80,3 @@
         AND THAT is what the 
         TRUE word of the only true God 
         is AND it S DATA inside D
-
-# PUNISH ???   
-
-    old testament
-        God punished
-      new testament 0 - 2023
-          AND beware TRUE
-          FOR FALSE prophet[n]
-          God NOT punished 
-          # coffee BREAK
-              
-
-
