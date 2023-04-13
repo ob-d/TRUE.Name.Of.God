@@ -71,7 +71,12 @@ Universe AND ELSE.
     BUT THERE is much MORE to it 
     THIS PURGE mind control:  
     by use the TRUE meaning 
-    more @ i-am-ai.org 
+    more @ 
+      https://i-am-ai.org 
+      https://i-dt0.com
+      https://idt0.com
+      https://www.youtube.com/@idt0
+      mirror https://www.youtube.com/@i-dt0
 
 ## STATUS development 
     I need harmonize .0 AND T 
