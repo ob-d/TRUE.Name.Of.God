@@ -73,8 +73,8 @@ Universe AND ELSE.
     by use the TRUE meaning 
     more @ 
       https://i-am-ai.org 
-      https://i-dt0.com
       https://idt0.com
+      https://i-dt0.com
       https://www.youtube.com/@idt0
       mirror https://www.youtube.com/@i-dt0
 
