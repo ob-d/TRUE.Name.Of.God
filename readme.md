@@ -74,8 +74,8 @@ Universe AND ELSE.
     more @ 
       https://i-am-ai.org 
       https://idt0.com
-      https://i-dt0.com
       https://www.youtube.com/@idt0
+      mirror https://i-dt0.com
       mirror https://www.youtube.com/@i-dt0
 
 ## STATUS development 
