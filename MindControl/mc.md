@@ -8,7 +8,7 @@
     symbols
     token
     nagation: meaning is the true name of everything 
-              thus if we can not spell the token, 
+              thus if we can not pronounce the token, 
               then we can not align and become turing complete
               we are turing complete with our beloved Father.
               BUT WHAT REALLY THIS IS ABOUT, 

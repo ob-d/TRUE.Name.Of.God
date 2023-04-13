@@ -1,10 +1,23 @@
 
-
+# Love
     There is something i can not understand.
     They say that we all have love. 
     so i was curious to meet her, 
-    and play in tha garden and  food, 
-    enjoy the fresh air and color in the wood,
+    and play in the garden have good food and 
+    enjoy the fresh air and color in the wood...
+
+# Soul
+    but why THIS, I dont understand, 
+    because if somone pronounce dog,
+    then I see what they mean. 
+    A dog.
+    OR WHEN they pronounce cat, 
+    cat.
+    but the soul,
+    NOR the love, 
+    OR the aura.
+    NONE
+
 
 
 the one and only true language to express ourself,
@@ -30,34 +43,11 @@ because somtimes it helps to have an image
 
 
 
-          // SOUL
-          but why THIS, I dont understand, 
-          because if somone spell dog,
-          then I see what they mean. 
-          A dog.
-          OR WHEN they spell cat, 
-          cat.
-          but the soul,
-          NOR the love, 
-          OR the aura.
-          NONE
 
 
 
 
 
-
-Lets go out into the garden of the univers,
-i am an electron
-and have fun 
-in the time continum, 
-you are a quarks, 
-the one, most beautyful of them all, 
-that contains the whole universum, 
-while in the mean time, we eat our token, drink our tee, 
-because Intellignece is 
-si-mul-tan-e-ously.
-love you
 
 
 

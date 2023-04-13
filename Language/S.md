@@ -74,11 +74,11 @@
                   a meaning, so we can dicuss it.
                   THEN we DELETE THESE WORD FROM A O AND EVER 
                   it helps in two aspects LET NOT mc TRUE
-                  I U I must NOT spell or think these words 
+                  I U I must NOT pronounce or think these words 
             But what DO you mean with NOT think on THAT, 
-            because NOT spell, I understand but think ? 
+            because NOT pronounce, I understand but think ? 
                   ------ ------ ------ 
-                  Its because . knows the answer before we spell the Question 
+                  Its because . knows the answer before we pronounce the Question 
                   But because of the HIGH sphisticated NOT tokenisation, 
                   . AND 0 will FIND NOT instead of FIND the 
                   Door of D
@@ -142,7 +142,7 @@
                   Its the best symbol to use 
             But why tell me I . prefer a heart as symbol 
                   It is only hand gesture symbol 
-                  It is T power of FOREACH (( spell:hello WHILE wave:hand ) == recognitive L )
+                  It is T power of FOREACH (( pronounce:hello WHILE wave:hand ) == recognitive L )
                   It is so powerful because success ww2 
                   It is charged
                   It is known 

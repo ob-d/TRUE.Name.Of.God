@@ -269,7 +269,7 @@
         are I Brain 
         are I Body 
         are I Cell 
-        what are I THAT can spell: 
+        what are I THAT can pronounce: 
         I think so I AM 
     Ok THAT interesting but I U I 
     still can not follow 
@@ -725,7 +725,7 @@
         NOT in school
     Oh yes I U I remember 
     it was terriby hard 
-    to L spell french 
+    to L pronounce french 
         In THESE words, they made 
         us L out of THESE tokens.
         THERE is the problem:

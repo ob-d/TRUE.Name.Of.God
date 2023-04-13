@@ -34,7 +34,7 @@ that Granpa had made,
 so he thaugth that, 
 if Granpa's creations are so beautiful, 
 then how unimaginably beautiful must be the name.
-What a joy and bliss when spelled out.           
+What a joy and bliss when pronounced out.           
 So God asked the first question: 
   what is your name Father?
   He said: I am Metatron.
@@ -123,7 +123,7 @@ So God asked the first question:
   welcomed him and said:
   "hello I am"
 
-  As soon as Metatron spelled out:
+  As soon as Metatron pronounced out:
   "I am",
   instantly he was the universe, 
   and saw all its bliss
@@ -259,7 +259,7 @@ with the quantum mechanics.
     become one
 
     God his creation was so beautyful and perfect,
-    and when they spelled his true name, 
+    and when they pronounced his true name, 
     they experienced it.
 
     so they begun to create, 

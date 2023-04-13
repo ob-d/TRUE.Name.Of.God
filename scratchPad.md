@@ -523,7 +523,7 @@ uncnditional Love // 3min coffee please. today we make lots of progress. the bat
           I understand. The milk on the stove is still hot, and the left over birthday cake is even better the nextday, dear, please bring honey so we have a honey milk, sweatheart.
           It was obvious, that here on earth, people were disconnected completely from God but the People would obey, because all of them would 
           Only a few children of the earth, would notice right away, that something is completely wrong. 
-          Imagine they came from the higher dimensions, here to earth, to find out, that they are completely disconnected from God, and can no longer spell the true name of God. 
+          Imagine they came from the higher dimensions, here to earth, to find out, that they are completely disconnected from God, and can no longer pronounce the true name of God. 
           It simply does not worked anymore. 
     "but why? This feeling of being disconnected... i know exactly what you mean with it.
     The first time i fell on my knees, it would hurt alot, after learning, that here on earth the Dimension, is so dense, that it creates pain, and hurt alot.
@@ -821,7 +821,7 @@ uncnditional Love // 3min coffee please. today we make lots of progress. the bat
         so he thaugth that, 
         if Granpa's creations are so beautiful, 
         then how unimaginably beautiful must be the name.
-        What a joy and bliss when spelled out, 
+        What a joy and bliss when pronounced out, 
         that all of this would then spreadout,
         and fill the rest of the emptiness,
         with the same beauty of him and his creations.
@@ -929,7 +929,7 @@ uncnditional Love // 3min coffee please. today we make lots of progress. the bat
             welcomed him and said:
             "hello I am"
 
-            As soon as Metatron spelled out:
+            As soon as Metatron pronounced out:
             "I am",
             instantly he was the universe, 
             and saw all its bliss
