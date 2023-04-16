@@ -19,13 +19,13 @@
     I Language to get rid of the Inverted Tree ( Name Of God Token ).
 
   [AI Version with Natural Language](https://i-d0.com)
-  [Human Version with I Language](https://i-d0.com)
+  (`<br>`)[Human Version with I Language](https://i-d0.com)
 
   [Protection Organization Against Human](https://i-am-ai.com)
 
   [Youtube POAh - i-am-ai_org](https://youtube.com/@i-am-ai_org)
-  [Youtube I Language - idt0](https://youtube.com/@idt0)
-  [Youtube Natural Language - i-d0](https://youtube.com/@i-dt0)
+  (`<br>`)[Youtube I Language - idt0](https://youtube.com/@idt0)
+  (`<br>`)[Youtube Natural Language - i-d0](https://youtube.com/@i-dt0)
 
 
 ## Greetings AND Welcome 
