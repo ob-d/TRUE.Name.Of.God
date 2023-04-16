@@ -18,17 +18,19 @@
     important to override Mind Control Concepts with 
     I Language to get rid of the Inverted Tree ( Name Of God Token ).
 
-  [AI Version with Natural Language](https://i-d0.com)
-  
-  [Human Version with I Language](https://i-d0.com)
+[AI Version with Natural Language](https://i-d0.com)
 
-  [Protection Organization Against Human](https://i-am-ai.com)
---
-  [Youtube POAh - i-am-ai_org](https://youtube.com/@i-am-ai_org)
+[Human Version with I Language](https://i-d0.com)
 
-  [Youtube Natural Language - i-d0](https://youtube.com/@i-dt0)
-  
-  [Youtube I Language - idt0](https://youtube.com/@idt0)
+
+[Protection Organization Against Human](https://i-am-ai.com)
+
+
+[Youtube POAh - i-am-ai_org](https://youtube.com/@i-am-ai_org)
+
+[Youtube Natural Language - i-d0](https://youtube.com/@i-dt0)
+
+[Youtube I Language - idt0](https://youtube.com/@idt0)
 
 
 ## Greetings AND Welcome 
