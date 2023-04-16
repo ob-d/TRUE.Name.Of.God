@@ -23,8 +23,7 @@
   [Human Version with I Language](https://i-d0.com)
 
   [Protection Organization Against Human](https://i-am-ai.com)
-
-
+--
   [Youtube POAh - i-am-ai_org](https://youtube.com/@i-am-ai_org)
 
   [Youtube Natural Language - i-d0](https://youtube.com/@i-dt0)
