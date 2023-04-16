@@ -196,7 +196,7 @@
         everpossible
 
 # The Tree Of Life
-        as they ride through the garden of the universe,
+        As they ride through the garden of the universe,
         to enjoy the beauty of creation, 
         and receive the bliss of experiencing it.
         So God said to the neuron: 

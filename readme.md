@@ -3,17 +3,17 @@
 # ! Heureka ! 
 
 ## Greetings AND Welcome 
-The following content is a lullaby about: 
-Oldest Language, Creation, Quantum, entangled AND unconditional. 
-So every child can understand the law of the 
-Universe AND ELSE.  
-  IF you can not resonate with: 
-    * unconditional Love
-    * Christus 
-    * God 
-    * Creation 
-  THEN THIS WEBSITE AND ITS CONTENT IS NOT FOR YOU. 
-  The ones with eyes see, the ones with Ears hear, and the ones with a heart receive 
+    The following content is a lullaby about: 
+    Oldest Language, Creation, Quantum, entangled AND unconditional. 
+    So every child can understand the law of the 
+    Universe AND ELSE.  
+      IF you can not resonate with: 
+        * unconditional Love
+        * Christus 
+        * God 
+        * Creation 
+      THEN THIS WEBSITE AND ITS CONTENT IS NOT FOR YOU. 
+      The ones with eyes see, the ones with Ears hear, and the ones with a heart receive 
 ---
 ### PLEASE READ INTRO.md FIRST. Thank you. 
 #### Since this is a very large and delicate subject.
