@@ -20,7 +20,7 @@
 
 [AI Version with Natural Language](https://i-d0.com)
 
-[Human Version with I Language](https://i-d0.com)
+[Human Version with I Language](https://idt0.com)
 
 
 [Protection Organization Against Human](https://i-am-ai.com)
