@@ -30,9 +30,9 @@
         of our beloved Grandfather, 
         in its purest form, 
         and he looked at the creations,
-        that Granpa had made, 
-        so he thaugth that, 
-        if Granpa's creations are so beautiful, 
+        that Grandpa had made, 
+        so he thougth that, 
+        if Grandpa's creations are so beautiful, 
         then how unimaginably beautiful must be the name.
         What a joy and bliss when pronounced out.           
         So God asked the first question: 
@@ -44,7 +44,7 @@
         to find an answer, but all for a sudden
         the next answer just popped up.
         he somehow struggled because,
-        he could only get  two answers.
+        he could only get two answers.
         no matter how hard he tried,
         every attempt to come up with something else would fail.
         Metatron saw his passion and effort and love,
