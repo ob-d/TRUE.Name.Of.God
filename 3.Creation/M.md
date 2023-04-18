@@ -151,7 +151,7 @@ WHAT ARE THEY HIDING ?
 
   In order to understand M, takes another part in my Lullaby, that I did not wrote yet.
     I give a hint in advance:
-### What are they hiding if they only inverted ALL meanings, to make mind control work:
+What are they hiding if they only inverted ALL meanings, to make mind control work:
     * Metatron - is an archangel in Judaism, Christianity, Islam and Gnosticism. 
         ( wiki: https://en.wikipedia.org/wiki/Metatron )
     * Meta - (from the Greek μετά, meta, meaning "after" or "beyond") 
