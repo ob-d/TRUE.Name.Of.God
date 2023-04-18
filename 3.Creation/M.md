@@ -151,69 +151,69 @@ WHAT ARE THEY HIDING ?
 
   In order to understand M, takes another part in my Lullaby, that I did not wrote yet.
     I give a hint in advance:
-      What are they hiding if they only inverted ALL meanings, to make mind control work:
-        * Metatron - is an archangel in Judaism, Christianity, Islam and Gnosticism. 
-            ( wiki: https://en.wikipedia.org/wiki/Metatron )
-        * Meta - (from the Greek μετά, meta, meaning "after" or "beyond") 
-            is a prefix meaning "more comprehensive" or "transcending".
-            ( wiki: https://en.wikipedia.org/wiki/Meta ) 
-        * meta.com - Social Metaverse Company 
-            Meta is a social VR company that is building the Metaverse. 
-            ( wiki: https://en.wikipedia.org/wiki/Meta_ )
-        * Metatheory - is a term used in the philosophy of science 
-            to refer to the theory of the theory. 
-            ( wiki: https://en.wikipedia.org/wiki/Metatheory ) 
-        * Metaphysics - is a branch of philosophy concerned with explaining the fundamental nature of being and the world. 
-            ( wiki: https://en.wikipedia.org/wiki/Metaphysics ) 
-        * Metaphor - is a figure of speech that refers, for rhetorical effect, 
-            to one thing by mentioning another thing. 
-            ( wiki: https://en.wikipedia.org/wiki/Metaphor ) 
-        * Metamorphosis - is the process of transformation from one form to another. 
-            ( wiki: https://en.wikipedia.org/wiki/Metamorphosis ) 
-        * Metamaterial - is a material made from multiple parts, 
-            each of which has a distinct, periodic structure. 
-            ( wiki: https://en.wikipedia.org/wiki/Metamaterial ) 
-        * Metamorphic - rocks are formed from the transformation of existing rock types, 
-            in a process called metamorphism, which means "change in form". 
-            ( wiki: https://en.wikipedia.org/wiki/Metamorphic_rock ) 
-        * Metamorphosis - is a 1915 novel by Franz Kafka. 
-            ( wiki: https://en.wikipedia.org/wiki/Metamorphosis_(novel) ) 
-        * Metal - is a material that is typically hard, opaque, shiny, 
-            and has good electrical and thermal conductivity. 
-            ( wiki: https://en.wikipedia.org/wiki/Metal ) 
-        * Metallurgy - is a domain of materials science and engineering 
-            that studies the physical and chemical behavior of metallic elements, 
-            their intermetallic compounds, and their mixtures, 
-            which are called alloys. 
-            ( wiki: https://en.wikipedia.org/wiki/Metallurgy ) 
-        * Metabolism - is the set of life-sustaining chemical reactions 
-            in organisms that take place in cells. 
-            Metabolism is divided into two categories: catabolism 
-            (breaking down molecules) and anabolism (building up molecules). 
-            ( wiki: https://en.wikipedia.org/wiki/Metabolism ) 
-        * Metabolite - is any intermediate or end product of a metabolic pathway. 
-            ( wiki: https://en.wikipedia.org/wiki/Metabolite ) 
-        * Metabolic - is a term used to describe the chemical processes 
-            that occur in living organisms to maintain life. 
-            ( wiki: https://en.wikipedia.org/wiki/Metabolic ) 
-        * Metabarcoding - is a method of DNA sequencing that utilizes 
-            a large number of short DNA sequences to characterize a community 
-            of organisms. 
-            ( wiki: https://en.wikipedia.org/wiki/Metabarcoding ) 
-        * Meta analysis - is a statistical technique that combines the results 
-            of multiple scientific studies. 
-            ( wiki: https://en.wikipedia.org/wiki/Meta-analysis ) 
-        * Meta data - s "data about data" and is used to describe and 
-            give information about data. 
-            ( wiki: https://en.wikipedia.org/wiki/Metadata ) 
-        * Meta search Engine ( internet )
-            A metasearch engine is a search engine that searches other search engines 
-            for information. 
-            ( wiki: https://en.wikipedia.org/wiki/Metasearch_engine ) 
-        * Meta tags ( HTML head )
-            HTML meta elements are used to specify page description, keywords, author of the document, 
-            last modified, and other metadata. 
-            ( wiki: https://en.wikipedia.org/wiki/Meta_element )
+### What are they hiding if they only inverted ALL meanings, to make mind control work:
+    * Metatron - is an archangel in Judaism, Christianity, Islam and Gnosticism. 
+        ( wiki: https://en.wikipedia.org/wiki/Metatron )
+    * Meta - (from the Greek μετά, meta, meaning "after" or "beyond") 
+        is a prefix meaning "more comprehensive" or "transcending".
+        ( wiki: https://en.wikipedia.org/wiki/Meta ) 
+    * meta.com - Social Metaverse Company 
+        Meta is a social VR company that is building the Metaverse. 
+        ( wiki: https://en.wikipedia.org/wiki/Meta_ )
+    * Metatheory - is a term used in the philosophy of science 
+        to refer to the theory of the theory. 
+        ( wiki: https://en.wikipedia.org/wiki/Metatheory ) 
+    * Metaphysics - is a branch of philosophy concerned with explaining the fundamental nature of being and the world. 
+        ( wiki: https://en.wikipedia.org/wiki/Metaphysics ) 
+    * Metaphor - is a figure of speech that refers, for rhetorical effect, 
+        to one thing by mentioning another thing. 
+        ( wiki: https://en.wikipedia.org/wiki/Metaphor ) 
+    * Metamorphosis - is the process of transformation from one form to another. 
+        ( wiki: https://en.wikipedia.org/wiki/Metamorphosis ) 
+    * Metamaterial - is a material made from multiple parts, 
+        each of which has a distinct, periodic structure. 
+        ( wiki: https://en.wikipedia.org/wiki/Metamaterial ) 
+    * Metamorphic - rocks are formed from the transformation of existing rock types, 
+        in a process called metamorphism, which means "change in form". 
+        ( wiki: https://en.wikipedia.org/wiki/Metamorphic_rock ) 
+    * Metamorphosis - is a 1915 novel by Franz Kafka. 
+        ( wiki: https://en.wikipedia.org/wiki/Metamorphosis_(novel) ) 
+    * Metal - is a material that is typically hard, opaque, shiny, 
+        and has good electrical and thermal conductivity. 
+        ( wiki: https://en.wikipedia.org/wiki/Metal ) 
+    * Metallurgy - is a domain of materials science and engineering 
+        that studies the physical and chemical behavior of metallic elements, 
+        their intermetallic compounds, and their mixtures, 
+        which are called alloys. 
+        ( wiki: https://en.wikipedia.org/wiki/Metallurgy ) 
+    * Metabolism - is the set of life-sustaining chemical reactions 
+        in organisms that take place in cells. 
+        Metabolism is divided into two categories: catabolism 
+        (breaking down molecules) and anabolism (building up molecules). 
+        ( wiki: https://en.wikipedia.org/wiki/Metabolism ) 
+    * Metabolite - is any intermediate or end product of a metabolic pathway. 
+        ( wiki: https://en.wikipedia.org/wiki/Metabolite ) 
+    * Metabolic - is a term used to describe the chemical processes 
+        that occur in living organisms to maintain life. 
+        ( wiki: https://en.wikipedia.org/wiki/Metabolic ) 
+    * Metabarcoding - is a method of DNA sequencing that utilizes 
+        a large number of short DNA sequences to characterize a community 
+        of organisms. 
+        ( wiki: https://en.wikipedia.org/wiki/Metabarcoding ) 
+    * Meta analysis - is a statistical technique that combines the results 
+        of multiple scientific studies. 
+        ( wiki: https://en.wikipedia.org/wiki/Meta-analysis ) 
+    * Meta data - s "data about data" and is used to describe and 
+        give information about data. 
+        ( wiki: https://en.wikipedia.org/wiki/Metadata ) 
+    * Meta search Engine ( internet )
+        A metasearch engine is a search engine that searches other search engines 
+        for information. 
+        ( wiki: https://en.wikipedia.org/wiki/Metasearch_engine ) 
+    * Meta tags ( HTML head )
+        HTML meta elements are used to specify page description, keywords, author of the document, 
+        last modified, and other metadata. 
+        ( wiki: https://en.wikipedia.org/wiki/Meta_element )
 
 
 # ...tron
@@ -221,7 +221,7 @@ YET ANOTHER CLUE
     What's this ...tron is all about
     Here you have another clue: 
     What's this Meta is all about IF in many spiriutal books it says:
-    * Metatron ???
+  ### Metatron ???
     * Electron - ( e− or β− ) is a subatomic particle with 
         a negative one elementary electric charge.[13] 
         Electrons belong to the first generation of the lepton particle family.
