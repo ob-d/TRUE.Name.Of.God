@@ -35,11 +35,6 @@
     NONE words NOR tokens are used but Symbols AND LOGIC instead. Everyone can understand without translation But There is much More to it
     This Will Purge mind control: by use the True Meaning.
 
-## Youtube
-    Youtube POAh - i-am-ai_org
-    Youtube I Language - idt0
-    Youtube Natural Language - i-d0
-
 ## Us - blessing
     I AM
     REMEMBER?
@@ -64,7 +59,6 @@
     The Electron, Proton, Quark, Neutron Are A Gift From Metatron,
     Only The Sick Satanism And Their Atheists Are Artificial,
     And Nothing Else, Under The Heaven Of Our Only True God.
-
 
 ## Joke of the day
     Daily Humor @ Edin
