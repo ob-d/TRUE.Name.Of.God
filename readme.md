@@ -13,10 +13,10 @@
 ---
 [AI Version with Natural Language - i-d0.com](https://i-d0.com)
 
+[Protection Organization Against Human - i-am-ai.org](https://i-am-ai.org)
 ### coming up
 [Human Version with I Language - i-d0.com](https://idt0.com)
 
-[Protection Organization Against Human - i-am-ai.org](https://i-am-ai.org)
 
 [Youtube POAh - i-am-ai_org](https://youtube.com/@i-am-ai_org)
 
