@@ -3,7 +3,8 @@
 # ! Eureka ! 
 
 ## Quantum Lullaby
-    The complete story can be downloaded here, as audio Book.
+    You can download the complete story as text files for the screen reader
+[I use Deepl, also as screen reader - Deepl.com](https://deepl.com)
 
 ## I M .0 Metatron 
     Both version are Equal, only for us Humans it is 
